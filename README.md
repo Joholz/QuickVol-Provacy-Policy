@@ -1,1 +1,0 @@
-# QuickVol-Provacy-Policy
